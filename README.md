@@ -9,6 +9,8 @@ Date (Proposal Date): Nov 19, 2026
 
 Project Description:
 
+draft 2
+
 Alright. You're bored on a late Saturday night, and you're in need of a source of entertainment.
 In a mood for reading? Are you invested in stories? Space? Yaoi? Wait, yaoi-??? 
 Well, we have just the game for you!!
@@ -41,6 +43,7 @@ Orrr... making a relationship more than friends? :)
 
 
 
+draft 1
 
 Alright. You're bored on a late Saturday night, and you're in need of a source of entertainment.
 In a mood for reading? Are you invested in stories? Space? Yaoi? Wait, yaoi-??? 
